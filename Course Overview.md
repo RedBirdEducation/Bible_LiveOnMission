@@ -1,6 +1,6 @@
 # Bible : Live on Mission
 
-> "But you will receive power when the Holy Spirit comes upon you. And you will be my witnesses, telling people about me everywhere—in Jerusalem, throughout Judea, in Samaria, and to the ends of the earth.” -Acts 1:8 
+> "But you will receive power when the Holy Spirit comes upon you. And you will be my witnesses, telling people about me everywhere—in Jerusalem, throughout Judea, in Samaria, and to the ends of the earth.” - Acts 1:8 
 
 In this course, we will seek to interactively learn what it means to live according to this verse. We will see what the Bible says about missions, discover the stories of missionaries past and present, and get involved with what God is doing in the world now.
 
@@ -30,3 +30,5 @@ The course is divided into 7 units spread over 32 weeks, where each week has 4 d
   * Missionaries across the world
   * Missionaries in persecuted areas
 * Conclusion 
+
+<sub>Unless otherwise stated, all Scripture is pulled from NLT.</sub>
