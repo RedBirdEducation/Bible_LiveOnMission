@@ -5,9 +5,6 @@ The second-century church father Tertullian said:
 
 What do you think this means? First off, a martyr is someone who is killed or suffers other extreme consequences for his or her belief. In particular, Christian martyrs are punished and killed for following Christ. Next, we see the word "seed." Plants don't grow up from the ground unless a seed is planted first. In the same way, the church (the collection of followers of Christ) doesn't grow without martyrdom.
 
-Watch this video to learn more about the meaning of Tertullian's quote: </br>
-[What does "the blood of the martyrs is the seed of the church" mean?](https://www.youtube.com/watch?v=nIiO3b1OyFc)
-
 Missionaries are called to share the gospel of Christ, even if it means discomfort, persecution, or death. Paul, as the first missionary, lived this out, and he saw his suffering as a blessing and an honor. 
 
 Read the following passages written by Paul (under inspiration of the Holy Spirit):
