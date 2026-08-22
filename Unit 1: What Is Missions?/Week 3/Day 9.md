@@ -1,7 +1,10 @@
 # Day 9: Introduction to William Carey
 
-...
-(Overview)
+So far, we've looked at how the Bible defines missions--that is the most important part!--and how the Apostle Paul was the first missionary.
+
+Now, we'll look at **William Carey**, the man who is often called **the Father of Modern Missions**.
+
+William Carey 
 
 ### Assignments:
 1. Write this week's memory verse 2 times:
