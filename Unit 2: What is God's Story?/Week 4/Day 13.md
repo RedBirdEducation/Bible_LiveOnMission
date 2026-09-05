@@ -11,3 +11,4 @@ This week, the focus will be on creation. As always, what the Bible says in more
 ### Assignments:
 1. Write this week's memory verse 2 times:
 > "I look up to the mountains—does my help come from there? My help comes from the Lord, who made heaven and earth!" - Psalms 121:1-2
+2. Play this [Creation Builder](https://www.maturingmindsmedia.com/creation-builder) game by placing the days in the correct order.
